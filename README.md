@@ -55,6 +55,6 @@ We may update this Privacy Policy to reflect changes in our practices or for oth
 
 8. Contact Us
 
-If you have any questions, concerns, or requests related to this Privacy Policy or our data practices, please contact us at rizqoo@gmail.com.
+If you have any questions, concerns, or requests related to this Privacy Policy or our data practices, please contact us at rizqooapp@gmail.com.
 
 By using Rizqoo, you consent to the terms of this Privacy Policy.
